@@ -1,4 +1,4 @@
-basic DNI including pro/darkship ++ dont follow me if you like thatmob or roblox args/webseries
+basic DNI including pro/darkship ++ dont follow me or interact if you like thatmob(the whole cast) or roblox args/webseries i dont like you guys
 
 "NOMINATE YOURSELF" GITHUB ACCOUNTS PLEASE DONT FOLLOW ME. I DO NOT WISH TO BE UP ON ANY OF THIS
 
